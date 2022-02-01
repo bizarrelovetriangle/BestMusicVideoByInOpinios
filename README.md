@@ -31,6 +31,7 @@ Not official of course
 21. [Justice - D.A.N.C.E.](https://youtu.be/sy1dYFGkPUE)
 22. [Born To Shine | Run For Your Life](https://youtu.be/hruW7-mYWhY)
 23. [AIR - Playground Love](https://youtu.be/NAgX1jO3No0)
+24. [Mylène Farmer - California](https://youtu.be/JAS2XAvINtc)
 
 ##### Videos reviewed but not included
 
