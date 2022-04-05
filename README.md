@@ -1,4 +1,4 @@
-﻿### Best music video in my opinios
+﻿### Best music video in my opinion
 ###### This is not a list of video clips of my favorite bands or songs. The video was chosen based on their meaning, artistry and conveyance of the feeling of that time.
 
 
